@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lu1sr3ynal2
+- 👋 @lu1sr3ynal2 Help
 
 
 <!---
